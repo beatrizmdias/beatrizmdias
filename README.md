@@ -1,4 +1,4 @@
-## Oie! Eu sou a Beatriz Dias 🦋
+## Oie! Eu sou a Bia 🦋
 
 ✨ Estudando JavaScript, HTML5 e CSS3
 
